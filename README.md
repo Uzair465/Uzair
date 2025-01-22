@@ -1,2 +1,0 @@
-# Uzair
-My Self Account
